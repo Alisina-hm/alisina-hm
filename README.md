@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello everyone, I'm Alisina Hemmatmanesh from Mashhad, Iran. I'm 16 years old and I love the web, product development, and solving challenges.
+Hello everyone, I'm Alisina Hemat manesh from Mashhad, Iran. I'm 16 years old and I love the web, product development, and solving challenges.
 
 
 ## 🌐 Socials:
