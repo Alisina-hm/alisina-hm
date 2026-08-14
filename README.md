@@ -1,5 +1,5 @@
 # 💫 About Me:
-سلام عزیزان، بنده 16 ساله از ایران،مشهد هستم فرانت اند کار
+Hello everyone, I'm Alisina Hemmatmanesh from Mashhad, Iran. I'm 16 years old and I love the web, product development, and solving challenges.
 
 
 ## 🌐 Socials:
